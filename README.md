@@ -1,4 +1,2 @@
 # ProjectAbhyansh
-Abhyansh lived in India
-Pakistan is not a democracy
-America is also a democracy
+I am actually the one who not the one
